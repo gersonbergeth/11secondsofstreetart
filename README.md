@@ -1,2 +1,2 @@
-# 11 seconds of street art -- hello 
+# 11 seconds of street art
  Short videos of street art
